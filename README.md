@@ -1,5 +1,3 @@
-https://phighting.wiki/File:Sticker_vamoopy_The_Heart_Of_Boggio.png
-
 <div align="center">
 
 ────୨ৎ────
