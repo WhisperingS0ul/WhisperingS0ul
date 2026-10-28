@@ -1,17 +1,19 @@
 ────୨ৎ────
- Hey there 
+
+ ℌ𝔢𝔶 𝔱𝔥𝔢𝔯𝔢
 
 👀👀👀👀 
 
-my name is Medkit  
+𝔐𝔶 𝔫𝔞𝔪𝔢 𝔦𝔰 𝔐𝔢𝔡𝔨𝔦𝔱 , 𝔬𝔯 ℨ𝔢𝔫 , 𝔬𝔯 𝔄𝔶𝔞𝔫  
 
-w2i me if you want
+Ꮗ2Ꭵ 
 
 ִֶָ. ..𓂃 ࣪ ִֶָ🪽་༘࿐ 
 
-you can find me at phighting area 
+𝔜𝔬𝔲 𝔠𝔞𝔫 𝔣𝔦𝔫𝔡 𝔪𝔢 𝔦𝔫 𝔭𝔥𝔦𝔤𝔥𝔱𝔦𝔫𝔤 𝔞𝔯𝔢𝔞 
 
-see you ig😐 
+𝔖𝔢𝔢 𝔶𝔬𝔲 𝔦𝔤😐
 
  ᶻ 𝘇 𐰁 
+ 
  ────୨ৎ────
